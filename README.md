@@ -1,5 +1,5 @@
 🚀 Rupee Rocket</h1>
-        <p>India का सबसे तेज़ और आसान Compounding Calculator App.<br>Zero Ads • Super Fast • Completely Free</p><a class="download-btn" YOUR_GITHUB_DIRECT_LINK_HERE⬇ Download Rupee Rocket APK</a>
+        <p>India का सबसे तेज़ और आसान Compounding Calculator App.<br>Zero Ads • Super Fast • Completely Free</p><a class="https://s.amsu.ng/PDpUabyPNBNN" ⬇ Download Rupee Rocket APK</a>https://s.amsu.ng/PDpUabyPNBNN
 
     <div class="card">
         <h2>✨ Features</h2>
